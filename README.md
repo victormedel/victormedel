@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @victormedel
-- 👀 I’m interested in many things life has to offer but this space is dedicated to the growth and development of my professional skills.
+- 👀 I’m interested in many different things life has to offer but this space is dedicated to the growth and development of my professional skills.
 - 🌱 I’m currently learning fundamental concepts that will allow me to determine the best approach to a solution.
 - 📫 How to reach me: medel.victor@gmail.com
 
